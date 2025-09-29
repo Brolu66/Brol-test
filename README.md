@@ -1,5 +1,7 @@
 # Brol-test
 test ssssss
-Dominik woli chłopców!!!
+
+[ZATAJONE KŁASTMWA}
+
 
 ### pss... dominik tu był i zatwierdza ;3
